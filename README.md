@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any program that need help
 - 📫 How to reach me, sent any message to danbjocool@gmail.com
 - 😄 Pronouns: he and his
-- ⚡ Fun fact: a like oranges
+- ⚡ Fun fact: i like oranges
 
 <!---
 qwert200/qwert200 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
